@@ -1,10 +1,10 @@
-الأفضل Astrill عميل | التشفير من طرف إلى طرف + دعم متعدد البروتوكولات هو أفضل Astrill عميل مع التشفير من طرف إلى طرف و دعم متعدد البروتوكولات. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/astrill-vpn-xx43/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
