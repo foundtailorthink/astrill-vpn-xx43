@@ -4,7 +4,7 @@ Best Astrill VPN Client | end-to-end encryption + multi-protocol support is the 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/astrill-vpn-xx43/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthinkhttps://foundtailorthink.github.io/astrill-vpn-xx43/.github.io/astrill-vpn-xx43/ ) |
  |---------------------|----------------------:|
 
 
