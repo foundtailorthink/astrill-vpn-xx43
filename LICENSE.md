@@ -1,10 +1,10 @@
-Melhor Astrill VPN Cliente | criptografia de ponta a ponta + suporte a vários protocolos é o melhor Astrill VPN cliente com criptografia de ponta a ponta e suporte a vários
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/astrill-vpn-xx43/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
